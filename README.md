@@ -1,5 +1,5 @@
 
-![mos-design-hn1_U1yCNAQ-unsplash](https://github.com/mariaampimpyenan/mariaampimpyenan/assets/89296366/c31afb30-cab4-432f-8f07-d5744967142d)
+![Untitled design](https://github.com/mariaampimpyenan/mariaampimpyenan/assets/89296366/7b79f1f6-539f-49fe-93ae-d218ca28016c)
 
 ### Hi there 👋
 🔭 I’m a Physics student
