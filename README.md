@@ -1,7 +1,6 @@
 ![mos-design-hn1_U1yCNAQ-unsplash](https://github.com/mariaampimpyenan/mariaampimpyenan/assets/89296366/2f282b3b-64e5-41bd-8574-76a58a7acdc4)
 
 ### Hi there 👋
-<br>
 🔭 I’m a Physics student
 <br>
 🌱 I’m currently learning for physics, robotics, and software development
